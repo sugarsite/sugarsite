@@ -1,4 +1,3 @@
-hey gang!! the rentry giveaway is finally over, i'd just like to say thank you to all my participants bc there was A LOT of u. i feel SO bad that i couldnt make rentries for u all so i added an extra 2 winners (the ratio of 3 out of like 1 billion didn't seem fair to me so) congradulations winners!! (i'll add the video to the raffle in a bit)
-
-
+hey gang!! the rentry giveaway is finally over, i'd just like to say thank you to all my participants bc there was A LOT of u. heres my first two winners!! [@partiesareforlosers](https://github.com/partiesareforlosers) , @[bonelace](https://github.com/bonelace)
+i'd like to introduce my final 3 (yes three) after finishing their rentries just so i dont put too much on my plate. the reason i added an extra 2 places is cus 3 out of like 1 trillion is a slim chance ane i wanted it to feel fair, congrads winners!! see u soon and ty for participating!! 
 <img src="https://github.com/user-attachments/assets/39352289-a826-4f45-96c0-e3a2be865ca7" width="5000">
