@@ -4,3 +4,4 @@ pssttt, hey u, yes u!! im working on prizes for my raffle winners:
 [@partiesareforlosers](https://github.com/partiesareforlosers) and [@bonelace](https://github.com/bonelace)
 
 go check them out!!
+also ty to everyone who participated in this little event of mine!! love ya!
